@@ -1,7 +1,7 @@
 # eucalypsih_vdvvapspy_nididid
 <p><a>eucal_y</a></p>
 <p><a>GD</a></p>
-```text
+```javascript
 1m6PU29ZzNK1CX8PMfk7qbJOHj-HErGR2
 ```
 <a href="https://vidssave.com/id/home">https://vidssave.com/id/home</a>
